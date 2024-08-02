@@ -4,7 +4,7 @@
 林優香里/ Yukari Hayashi
 学生番号 1A122157
 指導教員 古橋大地 教授
-©︎Furuhashi Laboratory/Chisato Furuuchi, CC BY 4.0
+©︎Furuhashi Laboratory/Yukari Hayashi, CC BY 4.0
 ## Introduction
 ## Methods
 ## Results
